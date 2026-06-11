@@ -1,4 +1,3 @@
-# , stamps
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/2e38d649-d1bc-464b-b008-9f4de1ac5fdc" />
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/b1e8ab18-4aed-4223-a591-6ad0b2077570" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0bfd6075-1a96-41c8-ac22-cd3d0b3fec54" />
@@ -13,7 +12,6 @@
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b8ffe1bf-5337-4d41-b56f-54f4ce2a30a8" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4d188bcc-c245-4840-8db6-801ee289ba28" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/bc8979ad-e2cf-4835-ba6d-a179be285d76" />
-
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6b041763-87ba-4036-9026-0c9a5d8ee334" />
 <img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/09eeac45-8af2-4992-8b02-e1d8d8fef7bc" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/46fb408d-d8c8-43a5-9854-3681e5912850" />
