@@ -1,3 +1,4 @@
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/2041b6d6-df87-4f58-8236-87672219de6b" />
 <br>
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 <br>Writing and reading <br>
@@ -12,11 +13,17 @@
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/feb7ed61-6758-40fa-80da-330958d850c2" />
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
-<br>Shows/Franchises<br>
+<br>Shows/Games/Franchises<br>
 <br>
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/59442549-d9e2-4974-b61e-d386c852905c" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/4da20c16-bb40-471b-ae6c-62b2a85eb250" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/a94ce252-2c3a-4724-a15d-124ca0f61295" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/1866ab4f-28d7-4089-a245-9624d9ab69be" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/5475a45c-9429-4061-adaa-615bc2e844cb" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/1a06f3a2-1812-4f3a-9699-eedfdb6ea6ae" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/0a83be21-6c4c-4ec4-b8ce-c78139bab05c" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/335cf284-1fe9-45c0-a483-fda287546382" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/de7dd5b6-1601-419b-917c-cb04d2ad44e3" />
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 <br>Animals & nature <br>
@@ -29,7 +36,8 @@
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/e344a47f-9a7f-402b-879e-8a837baf4762" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/fe8303a6-dd5f-4556-a6cb-b505ccba4279" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/62a854ee-b699-4921-942b-93ca343d0b08" />
-<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/2041b6d6-df87-4f58-8236-87672219de6b" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/adfd360d-03c6-47f7-a402-67d5ac633ce3" />
+
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 <br>Albums and artists<br>
 <br>
