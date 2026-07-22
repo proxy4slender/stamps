@@ -1,4 +1,5 @@
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/2041b6d6-df87-4f58-8236-87672219de6b" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/fa6ab071-6d0c-4764-84d9-cbd0ca1ae846" />
 <br>
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 <br>Writing and reading <br>
@@ -18,12 +19,18 @@
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/59442549-d9e2-4974-b61e-d386c852905c" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/4da20c16-bb40-471b-ae6c-62b2a85eb250" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/a94ce252-2c3a-4724-a15d-124ca0f61295" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/8d957e73-bd0b-4c4b-959b-4f7bbadf55db" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/d9bf9b71-74d9-4df1-9dfe-feaad3ce7902" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/b4bd53cc-28c9-4473-94db-a403c6db6023" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/23f48956-f261-49ee-9348-2de8a22150fa" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/1866ab4f-28d7-4089-a245-9624d9ab69be" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/5475a45c-9429-4061-adaa-615bc2e844cb" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/1a06f3a2-1812-4f3a-9699-eedfdb6ea6ae" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/0a83be21-6c4c-4ec4-b8ce-c78139bab05c" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/335cf284-1fe9-45c0-a483-fda287546382" />
 <img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/de7dd5b6-1601-419b-917c-cb04d2ad44e3" />
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/2808c4ac-7ead-4381-be5c-a441302e92fa" />
+
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 <br>Animals & nature <br>
